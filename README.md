@@ -1,0 +1,2 @@
+# palworld-hack
+Free hack
